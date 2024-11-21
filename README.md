@@ -52,7 +52,7 @@ All that said, I do wish to put this whole situation behind me, **as soon as pos
 
 ## A Pause to Explain Myself
 #### 11/21/2024
-#### _cc: all relevant parties at Comcast / SpinCo, NBC, et. al.
+#### _cc: all relevant parties at Comcast / SpinCo, NBC, et. al._
 
 Look: I could be a little less direct in stating my case, it may in fact make things easier for all parties to settle on the damages that have occured to my person over this situation.
 
