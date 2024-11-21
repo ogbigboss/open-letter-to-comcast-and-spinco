@@ -4,7 +4,7 @@
 
 ## A Preamble / Hopeful Conclusion
 #### 11/19/2024
-#### _cc: CEO Brian Roberts and the rest of the boards at Comcast, SpinCo, and NBC_
+#### _cc: CEO Brian Roberts and the rest of the boards at Comcast, and NBC_
 
 To the CEO and the boards, while this is your decision to make, I'd like to emphasize my feeling that it is not your fault.
 
@@ -12,7 +12,7 @@ For those whose fault this is, wherever they may exist within your org charts, t
 
 One opportunity was to make a reality show around my family and I; however this would involve me providing my consent, and I will do no such thing for no price whatsoever: the opportunity to make a TV show is not happening.
 
-The other opportunity was around coordinating a legal issue which has since ended at least a week and a half ago, and the business development opportunities such a coordination could provide to Comcast / SpinCo and it's organizations given the "A-Z list" of celebrities whom took an interest in the issue. However, given the rocky road the legal issue took, along with my own interjections, it's dubious at best to say the business development opportunities still exist in full, and among those that do, allowing this situation to continue is not helping as it casts doubts on the efficacy of those engaging in the situation for business development purposes.
+The other opportunity was around coordinating a legal issue which has since ended at least a week and a half ago, and the business development opportunities such a coordination could provide to Comcast and it's organizations given the "A-Z list" of celebrities whom took an interest in the issue. However, given the rocky road the legal issue took, along with my own interjections, it's dubious at best to say the business development opportunities still exist in full, and among those that do, allowing this situation to continue is not helping as it casts doubts on the efficacy of those engaging in the situation for business development purposes.
 
 There is only one thing that continuing this situation is allowing: an attempt for those who have failed you, whose fault this is, to save some face, which they will not be able to do, because the continuation of this situation will only force me to speak outwardly about it, which is damaging to them, but unfortunately also to the organizations whom trusted them.
 
