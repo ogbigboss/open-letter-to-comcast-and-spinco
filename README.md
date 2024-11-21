@@ -50,3 +50,16 @@ Finally, it is my assumption that under your watch a certain amount of informati
 
 All that said, I do wish to put this whole situation behind me, **as soon as possible**, and am more negotiable than not.
 
+## A Pause to Explain Myself
+#### 11/21/2024
+#### _cc: all relevant parties at Comcast / SpinCo, NBC, et. al.
+
+Look: I could be a little less direct in stating my case, it may in fact make things easier for all parties to settle on the damages that have occured to my person over this situation.
+
+That said, I've only been manipulated and toyed with indirectly for nearly three years, so you can understand that I have no patience to wait for a conversation that hasn't actually started. Further or continued manipulations aren't helping - it may be a decent start to send everyone home and stop playing this game of stalking me in Montclair NJ, by the way.
+
+So, please understand the second anyone is willing to talk directly towards settling this situation and ending it, I will stop my routine of making content around this situation. A direct conversation is all it will take. I'm beyond shocked this opportunity was not taken last week while my parents were out, as it would have been much easier than what we're doing now.
+
+In summary: _without a direct conversation, I will continue to post my perspective, as it is the only direct conversation on this happening that I am afforded._
+
+And, again, I do wish to put this whole situation behind me, **as soon as possible**, and am more negotiable than not towards settling the damages done to my person.
