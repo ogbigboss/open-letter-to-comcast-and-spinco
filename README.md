@@ -63,3 +63,21 @@ So, please understand the second anyone is willing to talk directly towards sett
 In summary: _without a direct conversation, I will continue to post my perspective, as it is the only direct conversation on this happening that I am afforded._
 
 And, again, I do wish to put this whole situation behind me, **as soon as possible**, and am more negotiable than not towards settling the damages done to my person.
+
+## A Plea for Objectivity
+#### 11/25/2024
+#### _cc: CEO Brian Roberts_
+
+Mr. Roberts,
+
+My family have been Comcast subscribers since we moved into this house in Montclair, back when your father ran the company.
+
+I understand the majority of the revenue of Comcast is outside of it's media outlets, so in dealing with this situation, which mostly has been generated via it's media outlets, I'd ask you to consider seeking counsel outside of your company in guiding this situation forward, and ensure the counsel you seek is disconnected from Comcast's existing legal advisers as much as possible, including politically, given the upcoming shift in politics particularly.
+
+It's unfortunate but given that so much of this involved manipulation on the edges of the law, and likely involved participation if not explicit guidance from Comcast's internal legal team, this means they will be unable to be objective when dealing with this situation.
+
+It is often a rule for attorneys to not legally represent themselves in issues where they were involved directly, as personal bias will cause difficulty in making the right legal choices, causing emotional thinking to overrule rational thinking.
+
+I fear that in this situation, the same is true for Comcast as a company: as your own legal team guided this project at different times, they will be unable to provide an objective look at what will be best _for the business_, and not just their own careers and connections.
+
+Again, Mr. Roberts, please consider seeking outside counsel in learning how to end this situation in a way that would be best for Comcast as a _business_, and one that does a lot more than producing media. I still remember when we shifted our internet connection in this house to a Comcast cable line from another company's 56k connection around the time when you took over Comcast, I'd like for that to remain the only way I can speak to how your company expanded the bandwidth of my life.
