@@ -92,7 +92,7 @@ There is no need to continue the recording of footage, the sharing of the footag
 
 Considering the mounting legal liabilities, I would hope the continuation of such things would not be seen as an advantage but a disadvantage to any necessary future defense of this situation.
 
-Furthermore, to Mr. Lazarus specifically, I feel the live stream of the cameras is particularly hurtful to the efficacy and efficiency of two of the news networks you are taking over as SpinCo CEO, as well as hurtful to the bottom lines of the greater industry of live cable television to which you are a leader.
+Furthermore, to Mr. Lazarus specifically, I feel the live stream of the cameras is particularly hurtful to the efficacy and efficiency of two of the news networks you are taking over as SpinCo CEO, as well as hurtful to the bottom lines of the greater industry of live cable television to which you are a leader. For over a year now, network producers watch my movements throughout this home and coordinate with broadcasters to communicate and / or beguile me for purposes in competition with their own work products, and at times coordinate advertisements for the same purpose instead of for the bottom line. It's a waste of company money even if there were a product or strategic initiative available here, and there are not.
 
 To Comcast / NBC at large, given that there is no viable product to be made here, and the legal disciplinary hearings which this may have been of some aid to is over, the continuation of this situation is at worst a potentially incriminating employ of company resources, at best a uniquely observable sunken cost.
 
