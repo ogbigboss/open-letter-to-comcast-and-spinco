@@ -84,7 +84,7 @@ Again, Mr. Roberts, please consider seeking outside counsel in learning how to e
 
 ## Stop the Sunken Cost
 #### 11/26/2024
-#### _cc: CEO Brian Roberts, Chairwoman Donna Langley, CEO Mark Lazarus (of Comcast, NBC Universal, and SpinCo respectively), and the rest of the boards at Comcast, NBC, and SpinCo
+#### _cc: CEO Brian Roberts, Chairwoman Donna Langley, CEO Mark Lazarus (of Comcast, NBC Universal, and SpinCo respectively), and the rest of the boards at Comcast, NBC, and SpinCo_
 
 My family's home is constantly under watch by a network of cameras owned by Comcast / NBC, intended for the purpose of a reality show around my person which I never signed to, and will never sign for. Furthermore, many of my devices are presumably using screen and webcam capture software for the same purpose.
 
