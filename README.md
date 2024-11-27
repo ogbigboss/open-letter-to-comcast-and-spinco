@@ -81,3 +81,19 @@ It is often a rule for attorneys to not legally represent themselves in issues w
 I fear that in this situation, the same is true for Comcast as a company: as your own legal team guided this project at different times, they will be unable to provide an objective look at what will be best _for the business_, and not just their own careers and connections.
 
 Again, Mr. Roberts, please consider seeking outside counsel in learning how to end this situation in a way that would be best for Comcast as a _business_, and one that does a lot more than producing media. I still remember when we shifted our internet connection in this house to a Comcast cable line from another company's 56k connection around the time when you took over Comcast, I'd like for that to remain the only way I can speak to how your company expanded the bandwidth of my life.
+
+## Stop the Sunken Cost
+#### 11/26/2024
+#### _cc: CEO Brian Roberts, Chairwoman Donna Langley, CEO Mark Lazarus (of Comcast, NBC Universal, and SpinCo respectively), and the rest of the boards at Comcast, NBC, and SpinCo
+
+My family's home is constantly under watch by a network of cameras owned by Comcast / NBC, intended for the purpose of a reality show around my person which I never signed to, and will never sign for. Furthermore, many of my devices are presumably using screen and webcam capture software for the same purpose.
+
+There is no need to continue the recording of footage, the sharing of the footage via a live stream, or the employ of the numerous producers, vehicles, actors, and more temporarily stationed around my hometown of Montclair NJ hired to manage a reality show which will never happen.
+
+Considering the mounting legal liabilities, I would hope the continuation of such things would not be seen as an advantage but a disadvantage to any necessary future defense of this situation.
+
+Furthermore, to Mr. Lazarus specifically, I feel the live stream of the cameras is particularly hurtful to the efficacy and efficiency of two of the news networks you are taking over as SpinCo CEO, as well as hurtful to the bottom lines of the greater industry of live cable television to which you are a leader.
+
+To Comcast / NBC at large, given that there is no viable product to be made here, and the legal disciplinary hearings which this may have been of some aid to is over, the continuation of this situation is at worst a potentially incriminating employ of company resources, at best a uniquely observable sunken cost.
+
+Finally, though we are Indian and not Indigenous Americans, Thanksgiving is something my family intends to celebrate this Thursday with some of our extended family joining us. One of them is a minor. I'd appreciate if we could have this time in private as most families get to enjoy, as I am sure yours will, and I would appreciate that privacy extending past Thursday indefinitely, for the reasons stated above.
