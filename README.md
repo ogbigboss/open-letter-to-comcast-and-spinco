@@ -82,7 +82,7 @@ I fear that in this situation, the same is true for Comcast as a company: as you
 
 Again, Mr. Roberts, please consider seeking outside counsel in learning how to end this situation in a way that would be best for Comcast as a _business_, and one that does a lot more than producing media. I still remember when we shifted our internet connection in this house to a Comcast cable line from another company's 56k connection around the time when you took over Comcast, I'd like for that to remain the only way I can speak to how your company expanded the bandwidth of my life.
 
-## Stop the Sunken Cost
+## A Request for Normative Privacy
 #### 11/26/2024
 #### _cc: CEO Brian Roberts, Chairwoman Donna Langley, CEO Mark Lazarus (of Comcast, NBC Universal, and SpinCo respectively), and the rest of the boards at Comcast, NBC, and SpinCo_
 
