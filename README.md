@@ -97,3 +97,27 @@ Furthermore, to Mr. Lazarus specifically, I feel the live stream of the cameras 
 To Comcast / NBC at large, given that there is no viable product to be made here, and the legal disciplinary hearings which this may have been of some aid to is over, the continuation of this situation is at worst a potentially incriminating employ of company resources, at best a uniquely observable sunken cost.
 
 Finally, though we are Indian and not Indigenous Americans, Thanksgiving is something my family intends to celebrate this Thursday with some of our extended family joining us. One of them is a minor. I'd appreciate if we could have this time in private as most families get to enjoy, as I am sure yours will, and I would appreciate that privacy extending past Thursday indefinitely, for the reasons stated above.
+
+## A Riposte to Reality (Television Producers)
+#### 12/15/2024
+#### _cc: The Boomers / late Gen Xer's Presumably in Charge on the NBC Universal Side_
+
+Hey Gang (note the above CC when I say "gang" to refer to those folks),
+
+So, it looks like I'm still here and Comcast's board of directors is unable or unwilling to pull the plug, and if it's the latter, well, let's consider that from another angle.
+
+Scott Fitzgerald is quoted as saying the following: 
+
+> The test of a first-rate intelligence is the ability to hold two opposing ideas in mind at the same time and still retain the ability to function.
+
+So, I know you don't _want_ to think about this but for the sake of an experiment in intelligent thought, please try.
+
+Remember when you were younger, say the 1990s when you were in your 20s-40s? Remember when you were working your way up the ladder, looking up at those older folks in charge, hearing the stories and rumours about how, well, they were fucking up their whole careers, and many of their ranks and age knew, and almost everyone under their rank and younger than them knew, and no one was telling them?
+
+Remember how when you were younger, you saw this stuff happen and got excited because it meant you have a shot to fill the void of leadership that would be created when the "shit hit the fan", so you did everything you could to let the "shit hit the fan" rather than help the people in charge avoid embarassment or career failure?
+
+What if - and this is the opposing idea you might not want to entertain for the sake of this function you're playing in my life - _what if you were the ones fucking up and no one was telling you the truth_ beacuse it was better for them to let you fuck up so they could take charge, or in the case of the board of directors, not have to make a song and dance in front of the public shareholders when they remove you from your posts?
+
+Like I said, it's no doubt a conflicting thought with the reasoning you're using to justify continuing this charade of criminality, but for the sake of intelligence, why not consider it?
+
+I bet everyone else around you is.
