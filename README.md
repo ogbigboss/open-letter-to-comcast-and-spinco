@@ -100,7 +100,7 @@ Finally, though we are Indian and not Indigenous Americans, Thanksgiving is some
 
 ## A Riposte to Reality (Television Producers)
 #### 12/15/2024
-#### _cc: The Boomers / late Gen Xer's Presumably in Charge on the NBC Universal Side_
+#### _cc: The Boomers / late Gen Xer's Presumably in Charge on the NBC Universal & Democratic Party Side_
 
 Hey Gang (note the above CC when I say "gang" to refer to those folks),
 
