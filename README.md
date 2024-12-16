@@ -123,3 +123,8 @@ What if - and this is the opposing idea you might not want to entertain for the 
 Like I said, it's no doubt a conflicting thought with the reasoning you're using to justify continuing this charade of criminality, but for the sake of intelligence, why not consider it?
 
 I bet everyone else around you is.
+
+## A note on FBI Director Wray's recent announcement to depart before his term, and it's significance in timing and relation to this event
+#### 12/16/2024
+
+Click [here for the write up](fbi-director-wray-departure.md).
