@@ -114,6 +114,8 @@ So, I know you don't _want_ to think about this but for the sake of an experimen
 
 Remember when you were younger, say the 1990s when you were in your 20s-40s? Remember when you were working your way up the ladder, looking up at those older folks in charge, hearing the stories and rumours about how, well, they were fucking up their whole careers, and many of their ranks and age knew, and almost everyone under their rank and younger than them knew, and no one was telling them?
 
+Remember those times you told your older co worker or boss, whom you knew was sinking in a hole of their own creation, that you'd do some favor for them which you knew would only make the hole deeper, being kind to their face but snickering about suckering them behind their back?
+
 Remember how when you were younger, you saw this stuff happen and got excited because it meant you have a shot to fill the void of leadership that would be created when the "shit hit the fan", so you did everything you could to let the "shit hit the fan" rather than help the people in charge avoid embarassment or career failure?
 
 What if - and this is the opposing idea you might not want to entertain for the sake of this function you're playing in my life - _what if you were the ones fucking up and no one was telling you the truth_ beacuse it was better for them to let you fuck up so they could take charge, or in the case of the board of directors, not have to make a song and dance in front of the public shareholders when they remove you from your posts?
