@@ -128,3 +128,10 @@ I bet everyone else around you is.
 #### 12/16/2024
 
 Click [here for the write up](fbi-director-wray-departure.md).
+
+## I hadn't realized Rachel Maddow owns a production company funded by her salary at NBC
+#### 1/23/2025
+
+So, like, if Comcast can't stop Maddow, I get it. I just hadn't realized it was a possibility.
+
+More [here](https://github.com/ogbigboss/open-letter-to-comcast-and-spinco/blob/main/fbi-director-wray-departure.md).
